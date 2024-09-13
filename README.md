@@ -1,1 +1,1 @@
-hi i major in software engineering
+hi my name is sungmin and i'm studying programming
